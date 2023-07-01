@@ -1,0 +1,1 @@
+# qa_part_Yulii_Drozd
